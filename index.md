@@ -1,8 +1,6 @@
-### ¸öÈË¼òÀú
-
+###  ç®€å†
 
 
 ### publication
-
 
 ### some thinking
